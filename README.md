@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @huyhoang0702
-- 👀 I’m interested in ches
+- 👀 I’m interested in chess
 - 🌱 I’m currently learning history, english
 - 💞️ I’m looking to collaborate on no
 - 📫 How to reach me no
